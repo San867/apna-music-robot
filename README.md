@@ -1,4 +1,4 @@
-# APNAMUSIC_ROBOR
+# APNAMUSIC_ROBOT
 POWERFUL MUSIC BOT
 
 ━━━━━━━━━━━━━━━━━━━━
