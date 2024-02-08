@@ -8,7 +8,7 @@ POWERFUL MUSIC BOT
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/Apna-Music-RoBot-02-08">
+  <img src="https://te.legra.ph/file/4c6147055d669701c0fad.jpg">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ʟɪɢɪᴛ ✘ ᴍᴜsɪᴄ](https://t.me/APNAMUSIC_ROBOT)**_
@@ -26,7 +26,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ʟɪɢɪᴛ ✘ ᴍ
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://t.me/vfhtjgug/27">
+  <img src="https://te.legra.ph/file/4c6147055d669701c0fad.jpg">
 </p>
 
 <p align="center">
